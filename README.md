@@ -1,2 +1,2 @@
-RIC - Regulated Investment Commodity
+RIC - Regulated Investment Commodity Fund
 
